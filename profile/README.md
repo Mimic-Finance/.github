@@ -6,4 +6,7 @@
 - Mr.Punnawich Silpkitcharoen @I3acon
 - Mr.Waranat Suttikan @aomwara
 
+<b>Advisor</b>
+- Asst. Prof. Dr. Marong Phadoongsidhi
+
 King Mongkut's University of Technology Thonburi
